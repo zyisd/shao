@@ -1,6 +1,6 @@
 # 大象回家永久不迷路2024
 
-<a href="https://2ndjcj11.kesang6to.com?https://github.com">→→最/新/观/看/入/口←←</a>
+<a href="https://m8k3.cc">→→最/新/观/看/入/口←←</a>
 
 大象回家永久不迷路2024
 白松墨交往最久的女朋友叫什么？”喻清棠问。
